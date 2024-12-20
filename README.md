@@ -4,7 +4,7 @@
 </head>
 <body>
 
-<a href="https://1287betst10.com/" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/p9hiMHaVg_.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://1287betst10.com/"><img src="https://i.postimg.cc/mrTKbZgZ/media-1.png"></a>
 </a>
 
 # Bets10 - Bets10 Giriş - Resmi Giriş Adresi
